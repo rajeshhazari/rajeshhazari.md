@@ -1,6 +1,6 @@
 # Rajesh Hazari
-@Email : rajeshhazari@gmail.com
-@Phone : 832878-9519
+Email : rajeshhazari@gmail.com
+Phone : 832878-9519
 Linkedin : https://www.linkedin.com/in/rajesh-hazari-a4b08415/
 
 #Experinence Summary
